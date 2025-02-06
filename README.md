@@ -1,2 +1,2 @@
 # Certifications
-My certificates 
+More certifications are available in linkedIn
